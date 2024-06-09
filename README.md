@@ -1,1 +1,0 @@
-# section-palembang-tim-11
